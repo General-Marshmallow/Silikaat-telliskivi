@@ -1,0 +1,2 @@
+# Silikaat-telliskivi
+Valge
